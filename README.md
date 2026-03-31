@@ -185,4 +185,5 @@ to solve a real-world agricultural problem.
 
 ## 👨‍💻 Author
 
-Your Name
+Theophilius Edibo
+www.linkedin.com/in/theophilus-edibo-7b857935a or edibotheophilus@gmail.com.
